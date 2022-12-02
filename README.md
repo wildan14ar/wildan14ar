@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on IT and Enginering
 - 📫 How to reach me? you can reach me in wildan1423ar@gmail.com
 
-UPDATE SKILL and your science....!
+UPDATE SKILL and your Science....!
 
 <!---
 wildan14ar/wildan14ar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
